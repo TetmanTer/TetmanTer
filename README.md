@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @TetmanTer, foreingh account
+- 
+- 📫 How to reach me: Github: NemoNology
